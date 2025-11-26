@@ -6,9 +6,9 @@ I'm passionate about coding and skilled in database management. I enjoy tackling
 
 • Bachelor of Science in Information Technology
 
-New Era University
+• New Era University
 
-2023 – Present
+• 2023 – Present
 
 🎓 Certifications
 
