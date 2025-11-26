@@ -33,3 +33,7 @@ Jaspersoft Studio
 Eclipse
 
 HTML
+
+Let's Connect!
+LinkedIn: LinkedIn Profile
+Email: jeremias.esperanza@gmail.com
